@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @ThechoosenGuyRSA
-- 👀 I’m interested in ...music 
-- 🌱 I’m currently learning ...seeking platform to contribute in
-- 💞️ I’m looking to collaborate on ...youtu.be, amuse 
+- 👋 Hi, I’m @¥azx
+- 👀 I’m interested in ...in the vibes and pleasure around here
+- 🌱 I’m currently learning ...and just seeking 
+- 💞️ I’m looking to collaborate anywhere 
 - 📫 How to reach me ...0607204992 
 - 😄 Pronouns: ...that guy
 - ⚡ Fun fact: ...life is good 
